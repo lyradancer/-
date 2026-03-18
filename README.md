@@ -1,31 +1,31 @@
-![1000023717](https://github.com/user-attachments/assets/f5c13d7e-02e8-4cf8-beeb-d1abcf5b0e9c)
+
 
 𝘩𝘢𝘪𝘪𝘪 !!! 𝘭𝘺𝘳𝘢 𝘩𝘦𝘳𝘦 ^_^
-u might see me on pony town or somewhere else idk 🎉
+𝘶 𝘮𝘪𝘨𝘩𝘵 𝘴𝘦𝘦 𝘮𝘦 𝘰𝘯 𝘱𝘰𝘯𝘺 𝘵𝘰𝘸𝘯 𝘰𝘳 𝘴𝘰𝘮𝘦𝘸𝘩𝘦𝘳𝘦 𝘦𝘭𝘴𝘦 𝘪𝘥𝘬 🎉
 
-this is just for extra info about me that i didnt put in my strawpage ok? ok
-
-──────‧₊˚ ⛲️ ‧₊──────
-
-- i have social anxiety so if youre my friend, i probably wont interact with you first unless we're either close or party members
-- i have adhd unfortunately
-- if you see me talking to 1 or more of my friends, plz don't approach me unless i say you can, it can be inconvenient yk
-- c + h always allowed unless my name says otherwise
-- PLEASE tell me if i make you uncomfortable, i make slightly suggestive jokes sometimes
-- im a slow typer ok
-- i disconnect ALOT due to either internet problems, or my device died. so if i leave while we're talking, its nothing against you
-- under 11 dni
+𝘵𝘩𝘪𝘴 𝘪𝘴 𝘫𝘶𝘴𝘵 𝘧𝘰𝘳 𝘦𝘹𝘵𝘳𝘢 𝘪𝘯𝘧𝘰 𝘢𝘣𝘰𝘶𝘵 𝘮𝘦 𝘵𝘩𝘢𝘵 𝘪 𝘥𝘪𝘥𝘯𝘵 𝘱𝘶𝘵 𝘪𝘯 𝘮𝘺 𝘴𝘵𝘳𝘢𝘸𝘱𝘢𝘨𝘦 𝘰𝘬? 𝘰𝘬
 
 ──────‧₊˚ ⛲️ ‧₊──────
 
-- ANYWAYS favorite character dump
-- mayu (vocaloid), saros (synthv), momone momo (utauloid), vflower (vocaloid) adachi rei (utauloid), yokune ruko (utauloid)
-- kaai yuki (vocaloid), eleanor forte (synthv), tsuina-chan (synthv), natsuki karin (synthv), shadow milk cookie (crk)
-- pure vanilla cookie (crk), peppermint cookie (crk), eternal sugar cookie (crk), candy apple cookie (crk), kafu (cevio ai)
-- gekiyaku (utauloid), fukase (vocaloid), caramel choux cookie (crk), cream ferret cookie (crk), black sapphire cookie (crk),
-- konata izumi (ls), miyuki takara (ls), mami tomoe (pmmm), cradily (pokemon), furret (pokemon), mimikyu (pokemon), cleffa (pokemon)
-- espeon (pokemon), seel (pokemon)
+- 𝘪 𝘩𝘢𝘷𝘦 𝘴𝘰𝘤𝘪𝘢𝘭 𝘢𝘯𝘹𝘪𝘦𝘵𝘺 𝘴𝘰 𝘪𝘧 𝘺𝘰𝘶𝘳𝘦 𝘮𝘺 𝘧𝘳𝘪𝘦𝘯𝘥, 𝘪 𝘱𝘳𝘰𝘣𝘢𝘣𝘭𝘺 𝘸𝘰𝘯𝘵 𝘪𝘯𝘵𝘦𝘳𝘢𝘤𝘵 𝘸𝘪𝘵𝘩 𝘺𝘰𝘶 𝘧𝘪𝘳𝘴𝘵 𝘶𝘯𝘭𝘦𝘴𝘴 𝘸𝘦'𝘳𝘦 𝘦𝘪𝘵𝘩𝘦𝘳 𝘤𝘭𝘰𝘴𝘦 𝘰𝘳 𝘱𝘢𝘳𝘵𝘺 𝘮𝘦𝘮𝘣𝘦𝘳𝘴
+- 𝘪 𝘩𝘢𝘷𝘦 𝘢𝘥𝘩𝘥 𝘶𝘯𝘧𝘰𝘳𝘵𝘶𝘯𝘢𝘵𝘦𝘭𝘺
+- 𝘪𝘧 𝘺𝘰𝘶 𝘴𝘦𝘦 𝘮𝘦 𝘵𝘢𝘭𝘬𝘪𝘯𝘨 𝘵𝘰 1 𝘰𝘳 𝘮𝘰𝘳𝘦 𝘰𝘧 𝘮𝘺 𝘧𝘳𝘪𝘦𝘯𝘥𝘴, 𝘱𝘭𝘻 𝘥𝘰𝘯'𝘵 𝘢𝘱𝘱𝘳𝘰𝘢𝘤𝘩 𝘮𝘦 𝘶𝘯𝘭𝘦𝘴𝘴 𝘪 𝘴𝘢𝘺 𝘺𝘰𝘶 𝘤𝘢𝘯, 𝘪𝘵 𝘤𝘢𝘯 𝘣𝘦 𝘪𝘯𝘤𝘰𝘯𝘷𝘦𝘯𝘪𝘦𝘯𝘵 𝘺𝘬
+- 𝘤 + 𝘩 𝘢𝘭𝘸𝘢𝘺𝘴 𝘢𝘭𝘭𝘰𝘸𝘦𝘥 𝘶𝘯𝘭𝘦𝘴𝘴 𝘮𝘺 𝘯𝘢𝘮𝘦 𝘴𝘢𝘺𝘴 𝘰𝘵𝘩𝘦𝘳𝘸𝘪𝘴𝘦
+- 𝘗𝘓𝘌𝘈𝘚𝘌 𝘵𝘦𝘭𝘭 𝘮𝘦 𝘪𝘧 𝘪 𝘮𝘢𝘬𝘦 𝘺𝘰𝘶 𝘶𝘯𝘤𝘰𝘮𝘧𝘰𝘳𝘵𝘢𝘣𝘭𝘦, 𝘪 𝘮𝘢𝘬𝘦 𝘴𝘭𝘪𝘨𝘩𝘵𝘭𝘺 𝘴𝘶𝘨𝘨𝘦𝘴𝘵𝘪𝘷𝘦 𝘫𝘰𝘬𝘦𝘴 𝘴𝘰𝘮𝘦𝘵𝘪𝘮𝘦𝘴
+- 𝘪𝘮 𝘢 𝘴𝘭𝘰𝘸 𝘵𝘺𝘱𝘦𝘳 𝘰𝘬
+- 𝘪 𝘥𝘪𝘴𝘤𝘰𝘯𝘯𝘦𝘤𝘵 𝘈𝘓𝘖𝘛 𝘥𝘶𝘦 𝘵𝘰 𝘦𝘪𝘵𝘩𝘦𝘳 𝘪𝘯𝘵𝘦𝘳𝘯𝘦𝘵 𝘱𝘳𝘰𝘣𝘭𝘦𝘮𝘴, 𝘰𝘳 𝘮𝘺 𝘥𝘦𝘷𝘪𝘤𝘦 𝘥𝘪𝘦𝘥. 𝘴𝘰 𝘪𝘧 𝘪 𝘭𝘦𝘢𝘷𝘦 𝘸𝘩𝘪𝘭𝘦 𝘸𝘦'𝘳𝘦 𝘵𝘢𝘭𝘬𝘪𝘯𝘨, 𝘪𝘵𝘴 𝘯𝘰𝘵𝘩𝘪𝘯𝘨 𝘢𝘨𝘢𝘪𝘯𝘴𝘵 𝘺𝘰𝘶
+- 𝘶𝘯𝘥𝘦𝘳 11 𝘥𝘯𝘪
+ 
+──────‧₊˚ ⛲️ ‧₊──────
 
-- ok thats it bye
+- 𝘈𝘕𝘠𝘞𝘈𝘠𝘚 𝘧𝘢𝘷𝘰𝘳𝘪𝘵𝘦 𝘤𝘩𝘢𝘳𝘢𝘤𝘵𝘦𝘳 𝘥𝘶𝘮𝘱
+- 𝘮𝘢𝘺𝘶 (𝘷𝘰𝘤𝘢𝘭𝘰𝘪𝘥), 𝘴𝘢𝘳𝘰𝘴 (𝘴𝘺𝘯𝘵𝘩𝘷), 𝘮𝘰𝘮𝘰𝘯𝘦 𝘮𝘰𝘮𝘰 (𝘶𝘵𝘢𝘶𝘭𝘰𝘪𝘥), 𝘷𝘧𝘭𝘰𝘸𝘦𝘳 (𝘷𝘰𝘤𝘢𝘭𝘰𝘪𝘥) 𝘢𝘥𝘢𝘤𝘩𝘪 𝘳𝘦𝘪 (𝘶𝘵𝘢𝘶𝘭𝘰𝘪𝘥), 𝘺𝘰𝘬𝘶𝘯𝘦 𝘳𝘶𝘬𝘰 (𝘶𝘵𝘢𝘶𝘭𝘰𝘪𝘥)
+- 𝘬𝘢𝘢𝘪 𝘺𝘶𝘬𝘪 (𝘷𝘰𝘤𝘢𝘭𝘰𝘪𝘥), 𝘦𝘭𝘦𝘢𝘯𝘰𝘳 𝘧𝘰𝘳𝘵𝘦 (𝘴𝘺𝘯𝘵𝘩𝘷), 𝘵𝘴𝘶𝘪𝘯𝘢-𝘤𝘩𝘢𝘯 (𝘴𝘺𝘯𝘵𝘩𝘷), 𝘯𝘢𝘵𝘴𝘶𝘬𝘪 𝘬𝘢𝘳𝘪𝘯 (𝘴𝘺𝘯𝘵𝘩𝘷), 𝘴𝘩𝘢𝘥𝘰𝘸 𝘮𝘪𝘭𝘬 𝘤𝘰𝘰𝘬𝘪𝘦 (𝘤𝘳𝘬)
+- 𝘱𝘶𝘳𝘦 𝘷𝘢𝘯𝘪𝘭𝘭𝘢 𝘤𝘰𝘰𝘬𝘪𝘦 (𝘤𝘳𝘬), 𝘱𝘦𝘱𝘱𝘦𝘳𝘮𝘪𝘯𝘵 𝘤𝘰𝘰𝘬𝘪𝘦 (𝘤𝘳𝘬), 𝘦𝘵𝘦𝘳𝘯𝘢𝘭 𝘴𝘶𝘨𝘢𝘳 𝘤𝘰𝘰𝘬𝘪𝘦 (𝘤𝘳𝘬), 𝘤𝘢𝘯𝘥𝘺 𝘢𝘱𝘱𝘭𝘦 𝘤𝘰𝘰𝘬𝘪𝘦 (𝘤𝘳𝘬), 𝘬𝘢𝘧𝘶 (𝘤𝘦𝘷𝘪𝘰 𝘢𝘪)
+- 𝘨𝘦𝘬𝘪𝘺𝘢𝘬𝘶 (𝘶𝘵𝘢𝘶𝘭𝘰𝘪𝘥), 𝘧𝘶𝘬𝘢𝘴𝘦 (𝘷𝘰𝘤𝘢𝘭𝘰𝘪𝘥), 𝘤𝘢𝘳𝘢𝘮𝘦𝘭 𝘤𝘩𝘰𝘶𝘹 𝘤𝘰𝘰𝘬𝘪𝘦 (𝘤𝘳𝘬), 𝘤𝘳𝘦𝘢𝘮 𝘧𝘦𝘳𝘳𝘦𝘵 𝘤𝘰𝘰𝘬𝘪𝘦 (𝘤𝘳𝘬), 𝘣𝘭𝘢𝘤𝘬 𝘴𝘢𝘱𝘱𝘩𝘪𝘳𝘦 𝘤𝘰𝘰𝘬𝘪𝘦 (𝘤𝘳𝘬),
+- 𝘬𝘰𝘯𝘢𝘵𝘢 𝘪𝘻𝘶𝘮𝘪 (𝘭𝘴), 𝘮𝘪𝘺𝘶𝘬𝘪 𝘵𝘢𝘬𝘢𝘳𝘢 (𝘭𝘴), 𝘮𝘢𝘮𝘪 𝘵𝘰𝘮𝘰𝘦 (𝘱𝘮𝘮𝘮), 𝘤𝘳𝘢𝘥𝘪𝘭𝘺 (𝘱𝘰𝘬𝘦𝘮𝘰𝘯), 𝘧𝘶𝘳𝘳𝘦𝘵 (𝘱𝘰𝘬𝘦𝘮𝘰𝘯), 𝘮𝘪𝘮𝘪𝘬𝘺𝘶 (𝘱𝘰𝘬𝘦𝘮𝘰𝘯), 𝘤𝘭𝘦𝘧𝘧𝘢 (𝘱𝘰𝘬𝘦𝘮𝘰𝘯)
+- 𝘦𝘴𝘱𝘦𝘰𝘯 (𝘱𝘰𝘬𝘦𝘮𝘰𝘯), 𝘴𝘦𝘦𝘭 (𝘱𝘰𝘬𝘦𝘮𝘰𝘯)
+
+- 𝘰𝘬 𝘵𝘩𝘢𝘵𝘴 𝘪𝘵 𝘣𝘢𝘪
 
 ![1000023715](https://github.com/user-attachments/assets/fbeb076a-9dee-42ed-8336-c3f155d30693)
