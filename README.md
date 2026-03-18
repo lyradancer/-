@@ -5,6 +5,8 @@ u might see me on pony town or somewhere else idk 🎉
 
 this is just for extra info about me that i didnt put in my strawpage ok? ok
 
+──────‧₊˚ ⛲️ ‧₊──────
+
 - i have social anxiety so if youre my friend, i probably wont interact with you first unless we're either close or party members
 - i have adhd unfortunately
 - if you see me talking to 1 or more of my friends, plz don't approach me unless i say you can, it can be inconvenient yk
@@ -13,6 +15,8 @@ this is just for extra info about me that i didnt put in my strawpage ok? ok
 - im a slow typer ok
 - i disconnect ALOT due to either internet problems, or my device died. so if i leave while we're talking, its nothing against you
 - under 11 dni
+
+──────‧₊˚ ⛲️ ‧₊──────
 
 - ANYWAYS favorite character dump
 - mayu (vocaloid), saros (synthv), momone momo (utauloid), vflower (vocaloid) adachi rei (utauloid), yokune ruko (utauloid)
@@ -24,5 +28,4 @@ this is just for extra info about me that i didnt put in my strawpage ok? ok
 
 - ok thats it bye
 
-![1000023715](https://github.com/user-attachments/assets/f7d25617-19c1-4cbe-9242-f0798717d864)
-<img width="99" height="56" alt="1000023714" src="https://github.com/user-attachments/assets/b1bc5750-cfb6-4456-af39-4451be508878" />
+<img width="99" height="56" alt="1000023714" src="https://github.com/user-attachments/assets/d5123e35-869e-4add-a058-c4284a7b83cb" />
