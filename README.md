@@ -28,4 +28,4 @@ this is just for extra info about me that i didnt put in my strawpage ok? ok
 
 - ok thats it bye
 
-<img width="99" height="56" alt="1000023714" src="https://github.com/user-attachments/assets/d5123e35-869e-4add-a058-c4284a7b83cb" />
+![1000023715](https://github.com/user-attachments/assets/fbeb076a-9dee-42ed-8336-c3f155d30693)
