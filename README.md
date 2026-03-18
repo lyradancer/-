@@ -23,5 +23,6 @@ this is just for extra info about me that i didnt put in my strawpage ok? ok
 - espeon (pokemon), seel (pokemon)
 
 - ok thats it bye
-![1000023715](https://github.com/user-attachments/assets/33127c11-7ece-483a-aca5-e876269b2fce) <img width="99" height="56" alt="1000023714" src="https://github.com/user-attachments/assets/2a6a5d84-3f32-43d1-a62b-f387f5d897fb" />
 
+![1000023715](https://github.com/user-attachments/assets/f7d25617-19c1-4cbe-9242-f0798717d864)
+<img width="99" height="56" alt="1000023714" src="https://github.com/user-attachments/assets/b1bc5750-cfb6-4456-af39-4451be508878" />
