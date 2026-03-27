@@ -1,6 +1,6 @@
 " 𝐉𝐮𝐝𝐠𝐞 𝐦𝐞 𝐛𝐲 𝐰𝐡𝐚𝐭 𝐦𝐲 𝐜𝐨𝐯𝐞𝐫 𝐬𝐡𝐨𝐰𝐬, 𝐚𝐮𝐭𝐡𝐨𝐫 𝐛𝐞𝐜𝐨𝐦𝐞𝐬 𝐛𝐞𝐲𝐨𝐧𝐝 𝐫𝐞𝐩𝐫𝐨𝐚𝐜𝐡 ! "
 ![1000023813](https://github.com/user-attachments/assets/d1e6a575-91ac-49a6-ab7c-383c4b7d52bb)
-<img width="1000" height="100" alt="1000023815" 
+[strawpage](https://lyraheartstrings.straw.page) [atabook](lyradancer.atabook.org) [pronounspage](https://en.pronouns.page/@lyradancer)
   
 [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31io6pzcf2kzovdy3ldzrygdzpam&cover_image=true&theme=default&show_offline=false&background_color=121212&interchange=false&profanity=false)](https://github.com/kittinan/spotify-github-profile)
 
@@ -9,4 +9,3 @@
 
 <img width="736" height="736" alt="1000023700" src="https://github.com/user-attachments/assets/da03645e-08f3-4c9a-a7b1-7facd015fb40" />
 <img width="1000" height="100" alt="1000023815" src="https://github.com/user-attachments/assets/95cfbd04-535b-417b-8ea2-7b3ce3072826" />
-
