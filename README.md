@@ -5,4 +5,4 @@
 𝐡𝐢𝐡𝐢 𝐦𝐲 𝐧𝐚𝐦𝐞 𝐢𝐬 𝐥𝐲𝐫𝐚 𝐨𝐫 𝐝𝐨𝐯𝐞 , 𝐮 𝐦𝐢𝐠𝐡𝐭 𝐬𝐞𝐞 𝐦𝐞 𝐨𝐧 𝐩𝐨𝐧𝐲 𝐭𝐨𝐰𝐧 𝐨𝐫 𝐬𝐨𝐦𝐞𝐰𝐡𝐞𝐫𝐞 𝐞𝐥𝐬𝐞 ,, 𝐢 𝐥𝐨𝐯𝐞 𝐣𝐞𝐬𝐭𝐞𝐫𝐬 𝐚𝐧𝐝 𝐭𝐡𝐞 𝐜𝐨𝐥𝐨𝐫𝐬 𝐛𝐥𝐮𝐞 𝐚𝐧𝐝 𝐩𝐢𝐧𝐤 𝐨𝐤𝐚
 
 <img width="736" height="736" alt="1000023700" src="https://github.com/user-attachments/assets/da03645e-08f3-4c9a-a7b1-7facd015fb40" />
-[atabook](lyradancer.atabook.org) [strawpage](https://lyraheartstrings.straw.page) [pronounspage](https://en.pronouns.page/@lyradancer)
+[atabook](lyradancer.atabook.org)[strawpage](https://lyraheartstrings.straw.page)[pronounspage](https://en.pronouns.page/@lyradancer)
