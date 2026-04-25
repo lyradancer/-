@@ -22,5 +22,6 @@
 
 𝚔𝚊𝚝𝚜𝚞 - (𝚒𝚢𝚘𝚠𝚊 𝚊𝚗𝚍 𝚒𝚗𝚊𝚋𝚊𝚔𝚞𝚖𝚘𝚛𝚒 𝚢𝚊𝚙𝚙𝚎𝚛 )
 
-𝚢𝚘𝚔𝚞 - ( 𝚍𝚎𝚏𝚘𝚛𝚎𝚒 𝚠𝚒𝚛𝚎𝚙𝚕𝚊𝚢 )
+𝚢𝚘𝚔𝚞 - ( sanest defoko fan ever! wow! )
 
+<img width="736" height="728" alt="1000024656" src="https://github.com/user-attachments/assets/f9a5a626-1dc3-47dc-8565-f884dd1066ac" />
