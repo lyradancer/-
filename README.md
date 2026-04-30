@@ -18,7 +18,7 @@
 
 [𝙼𝚈 𝚆𝙸𝙵𝙴 𝙸𝙻𝙾𝚅𝙴 𝙷𝙴𝚁 𝚂𝙼](https://github.com/L0ST-UMBRELLA)
 
-[𝚃𝙷𝙴 𝚖𝚎𝚐𝚞𝚛𝚒𝚗𝚎 𝚕𝚞𝚔𝚊 𝚏𝚊𝚗](https://github.com/tunafishyy)
+[𝚃𝙷𝙴 𝚖𝚎𝚐𝚞𝚛𝚒𝚗𝚎 𝚕𝚞𝚔𝚊 𝚏𝚊𝚗 (𝚍𝚒𝚗𝚘!!!!!!)](https://github.com/tunafishyy)
 
 [𝚒𝚢𝚘𝚠𝚊 𝚢𝚊𝚙𝚙𝚎𝚛 (𝚔𝚊𝚝𝚜𝚞!!!!!)](https://github.com/kizuna-akari)
 
